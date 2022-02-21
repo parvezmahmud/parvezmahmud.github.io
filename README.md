@@ -1,1 +1,0 @@
-# parvezmahmud.github.io
