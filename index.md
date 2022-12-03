@@ -1,3 +1,1 @@
-#### Hi. I *rant* in here about whatever the fuck I please. Some you may find inappropriate. I'm not responsible for harming your soiboi/soifem mentality.
-
-***No post here is meant to be political. If it is, I was high and I apologize for being in ecstasy***
+I read books. Waste my time on local and international politics. Love the most beautiful girl I have ever met. Like to spend my time with my family tho the opportunity is very rare. I am as dumb as they come.
